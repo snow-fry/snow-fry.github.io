@@ -1,3 +1,3 @@
 # snow-fry.github.io
 
-<img src="https://ss0.bdstatic.com/70cFuHSh_Q1YnxGkpoWK1HF6hhy/it/u=4073939625,2160614177&fm=26&gp=0.jpg">
+<img src="https://cdn.cnbj1.fds.api.mi-img.com/mi-mall/a578ec4aaeba467f71a8243d343d0c08.jpg?w=1080&h=1490&bg=D4E5F5">
